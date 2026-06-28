@@ -1,4 +1,4 @@
-# 
+# Natif Inkscape flux de travail pour Mac OS | Premium Inkscape flux de travail pour PC Windows. Avec ressources liées et séparation de fréquences — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
